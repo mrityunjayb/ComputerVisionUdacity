@@ -1,0 +1,1 @@
+This chapter has no excercises. Go back to the Udacity portal for content.
